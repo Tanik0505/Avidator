@@ -1,1 +1,1 @@
-https://tanik0505.github.io/Avidator/
+https://tanik0505.github.io/Classroom_24
